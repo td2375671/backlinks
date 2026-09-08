@@ -17,3 +17,6 @@ https://www.startupranking.com/startup/clean-voice
 
 
 https://sites.gitbook.com/preview/site_Kxyia
+
+
+https://gravatar.com/mysticalhappily1a5eb362d5
