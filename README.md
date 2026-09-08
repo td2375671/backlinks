@@ -8,3 +8,6 @@ https://igtranscript.com/
 
 
 https://cal.com/tommy-qx0rlx
+
+
+https://www.startupranking.com/startup/instagram-transcript
