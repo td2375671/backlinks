@@ -14,3 +14,6 @@ https://www.startupranking.com/startup/instagram-transcript
 
 
 https://www.startupranking.com/startup/clean-voice
+
+
+https://sites.gitbook.com/preview/site_Kxyia
