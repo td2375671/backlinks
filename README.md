@@ -38,3 +38,7 @@ https://www.nxgntools.com/tools/instagram-transcript-generator
 
 https://websitelaunches.com/profile/69968
 
+
+https://websitelaunches.com/site/nytspellingbee.me
+https://websitelaunches.com/site/cleanvoice.app
+https://websitelaunches.com/site/igtranscript.com
