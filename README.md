@@ -42,3 +42,7 @@ https://websitelaunches.com/profile/69968
 https://websitelaunches.com/site/nytspellingbee.me
 https://websitelaunches.com/site/cleanvoice.app
 https://websitelaunches.com/site/igtranscript.com
+
+https://www.sitelike.org/similar/nytspellingbee.me/
+https://www.sitelike.org/similar/cleanvoice.app/
+https://www.sitelike.org/similar/igtranscript.com/
