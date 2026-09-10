@@ -46,3 +46,5 @@ https://websitelaunches.com/site/igtranscript.com
 https://www.sitelike.org/similar/nytspellingbee.me/
 https://www.sitelike.org/similar/cleanvoice.app/
 https://www.sitelike.org/similar/igtranscript.com/
+
+https://issuu.com/tommy035959
