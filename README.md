@@ -79,3 +79,6 @@ https://tommy985644.substack.com/p/finding-deleted-tweets-with-public
 
 
 https://instagram-transcript.gitbook.io/instagram-transcript-docs
+
+
+https://gravatar.com/mysticalhappily1a5eb362d5
