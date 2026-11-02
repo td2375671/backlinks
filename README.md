@@ -88,3 +88,6 @@ https://domain1528.wordpress.com/2026/11/02/finding-deleted-tweets-with-public-a
 
 
 https://www.tumblr.com/blog/tommy035959
+
+
+https://www.nxgntools.com/tools/deleted-tweet-finder
