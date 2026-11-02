@@ -58,3 +58,6 @@ https://hackmd.io/@Xiaot/S1ROg5BFze
 
 
 https://www.indiedb.com/members/td2375671/
+
+
+https://td2375671.blogspot.com/2026/11/finding-deleted-tweets-with-public.html
