@@ -82,3 +82,6 @@ https://instagram-transcript.gitbook.io/instagram-transcript-docs
 
 
 https://gravatar.com/mysticalhappily1a5eb362d5
+
+
+https://domain1528.wordpress.com/2026/11/02/finding-deleted-tweets-with-public-archives-what-works-and-what-doesnt/
