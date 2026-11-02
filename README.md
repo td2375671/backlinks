@@ -74,3 +74,5 @@ https://www.g2.com/sellers/clean-voice
 https://substack.com/@tommy985644
 
 https://tommy985644.substack.com/p/nyt-spelling-bee
+
+https://tommy985644.substack.com/p/finding-deleted-tweets-with-public
